@@ -1,2 +1,2 @@
 # GPT3__website
-![hero.png](/home/fazil/Pictures/Screenshots/hero.png)
+![hero.png](https://delivery.adrecover.com/banners/300x250/1.jpg)
